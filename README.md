@@ -1,1 +1,1 @@
-# Evidencia-1---Omar-Alejandro-Moreno-Anaya
+• Instalación y configuración. • Uso del programa. • Créditos. • Licencia.
